@@ -1,0 +1,1 @@
+# analiza_zadowolenia_z_zycia_badanych
